@@ -1,1 +1,1 @@
-test
+Olá!! Tenho como objetivo ingressar na área de desenvolvimento de software com aspirações de desenvolver habilidades de proficiência back-end ou até mesmo full-stack. Meu interesse na área tem crescido exponencialmente com a expansão do catálogo de aprendizado, estou a todo momento disponível a novas experiências e oportunidades.
